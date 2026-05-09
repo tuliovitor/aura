@@ -1,4 +1,4 @@
-# Studio Aura — Luxo Discreto, Design Eterno
+# 🌟 Studio Aura — Luxo Discreto, Design Eterno
 
 > *"O luxo não grita. Ele se revela no silêncio dos detalhes."*
 > — Marina Vasconcelos, Fundadora
